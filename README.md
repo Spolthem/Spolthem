@@ -1,5 +1,5 @@
-## open dm, open to new meeting
-<img src="https://github.com/user-attachments/assets/a15182ba-c50b-42ff-817f-127b00481bd2" width="500"/>
+## ㅤㅤㅤㅤㅤㅤopen dm, open to new meeting
+<img src="https://github.com/user-attachments/assets/a15182ba-c50b-42ff-817f-127b00481bd2" width="600"/>
 
 <!--
 **Spolthem/Spolthem** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
