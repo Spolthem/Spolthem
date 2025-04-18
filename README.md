@@ -1,7 +1,8 @@
 ## ㅤㅤㅤㅤㅤㅤopen dm, open to new meeting
 <img src="https://github.com/user-attachments/assets/a15182ba-c50b-42ff-817f-127b00481bd2" width="600"/>
+——————————
+<img src="https://tenor.com/bE25v.gif" width="600"/>
 
-<!--
 **Spolthem/Spolthem** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
