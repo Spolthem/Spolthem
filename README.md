@@ -3,4 +3,6 @@
 
 
 
-<img src="https://media1.tenor.com/m/AZObJX7juUoAAAAC/kaeya-genshin-impact.gif" width="100"/>
+<img src="https://media1.tenor.com/m/AZObJX7juUoAAAAC/kaeya-genshin-impact.gif" width="100"/> [![Три Дня Дождя - Интро/Дом (Intro/Home))](https://img.youtube.com/vi/qhks0X0EWsc/hqdefault.jpg)](https://youtu.be/qhks0X0EWsc)
+
+**Три Дня Дождя - Интро/Дом (Intro/Home)**
