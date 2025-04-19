@@ -1,6 +1,6 @@
 <div align="center">
 open dm, open to new meeting
-   <img src="https://www.animatedimages.org/img-animated-line-image-0398-106357.htm#linkit" width="200">
+   <img src="https://www.gifs.cc/lines/1-animated-flow-line-2.gif" width="200">
 <div align="center">
 <img src="https://github.com/user-attachments/assets/a15182ba-c50b-42ff-817f-127b00481bd2" width="500"/>
    
