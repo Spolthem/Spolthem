@@ -33,7 +33,7 @@ open dm, open to new meeting
 
 ## BEFORE INTERACT: 
 
-Im very possessive person, jealous and a bit rude in relationships but it doesn't hide the fact that I behave more or less well and loyally. I'm just a peculiar person, keep in mind. 
+Im very possessive person, jealous and a bit rude in relationships but it doesn't hide the fact that I behave more or less well and loyally. I'm just a peculiar person, keep in mind. <img src="https://img1.picmix.com/output/stamp/normal/6/2/1/4/934126_7eb09.gif" width="50">
 
 <div align="center">
    
