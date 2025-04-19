@@ -12,7 +12,7 @@ open dm, open to new meeting
          <marquee behavior="scroll" direction="left" scrollamount="4" style="width: 200px; display: inline-block;">
       </td>
       <td style="border: none; padding-left: 10px;">
-        <strong>Три Дня Дождя</strong><br>
+        <strong>Три Дня Дождя</strong><br> <img src="https://c.tenor.com/02x92IxtONYAAAAC/tenor.gif" width="80">
         Интро / Дом
       </td>
     </tr>
