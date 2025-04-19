@@ -1,6 +1,6 @@
 <div align="center">
 open dm, open to new meeting :р
-ㅤㅤㅤㅤㅤ
+ㅤ
 <img src="https://64.media.tumblr.com/eebe3abe42afe40097851ff72127a372/7888f4782bc0c07c-f6/s100x200/747fe2d07789700e4a062841ef130a97c3d31516.pnj" width="30">
    
 <div align="center">
