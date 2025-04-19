@@ -13,7 +13,7 @@ open dm, open to new meeting
       </td>
       <td style="border: none; padding-left: 10px;">
         <strong>Три Дня Дождя</strong><br> 
-        Интро / Дом <img src="https://c.tenor.com/02x92IxtONYAAAAC/tenor.gif" width="80">
+        Интро / Дом 
       </td>
     </tr>
   </table>
