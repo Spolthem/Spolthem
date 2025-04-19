@@ -1,3 +1,6 @@
+<img src="https://64.media.tumblr.com/ff0fc2bcd3baed5002039ea5aee5fa28/8660a52874a39645-0e/s2048x3072/f74811c040e963a15211d64e6d716d29078a43c2.pnj" width="700">
+
+
 <div align="center">
 open dm, open to new meeting
    
@@ -50,3 +53,8 @@ DNI: base(not at all (I'm not quite one myself, so I don't mind if you're zoophi
 <img src="https://64.media.tumblr.com/82c12ec8ecf9bfec11b08dbb02e132be/ee7bed4d66324502-f3/s1280x1920/cd7a8000069a96dfbc390902400aadccddaf2355.pnj" width="200">
 
 <img src="https://64.media.tumblr.com/b0da08270932c666edc4c9863e802bc9/321aa268678c99b9-7c/s250x400/b1489126a1ee202cf83c56281fcbd04a692d21b1.gifv" width="800">
+
+
+
+
+<img src="https://64.media.tumblr.com/aaaec21148904cb908fe1148379ada6d/8660a52874a39645-4d/s2048x3072/732faaa50d7c57ef8b6f814a9db0002002300bb1.pnj" width="700">
