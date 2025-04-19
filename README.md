@@ -27,4 +27,4 @@ open dm, open to new meeting
 <img src="https://img1.picmix.com/output/stamp/normal/3/7/9/6/1556973_ece88.gif" width="250">
    
 <div align="left">
-<img src="https://img1.picmix.com/output/pic/normal/5/1/0/0/12260015_07c3e.gif" width="100"> <img src="https://img1.picmix.com/output/pic/normal/2/5/9/4/12424952_d8684.gif" width="100"> <img src="https://img1.picmix.com/output/pic/normal/6/3/4/4/11974436_4d33c.gif" width="100"> <img src="https://img1.picmix.com/output/pic/normal/9/1/3/9/11919319_8fc9a.gif" width="100">
+<img src="https://img1.picmix.com/output/pic/normal/5/1/0/0/12260015_07c3e.gif" width="100"> <img src="https://img1.picmix.com/output/pic/normal/2/5/9/4/12424952_d8684.gif" width="100"> <img src="https://img1.picmix.com/output/pic/normal/6/3/4/4/11974436_4d33c.gif" width="100"> <img src="https://img1.picmix.com/output/pic/normal/9/1/3/9/11919319_8fc9a.gif" width="100"> <img src="https://img1.picmix.com/output/pic/normal/1/3/0/2/11942031_24141.gif" width="100">
