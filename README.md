@@ -43,6 +43,8 @@ DNI: base(not at all (I'm not quite one myself, so I don't mind if you're zoophi
 <div align="center">
 <img src="https://img1.picmix.com/output/pic/normal/1/8/7/7/12407781_2d309.gif" width="200">
 
+<div align="center">
+   
 <a href="https://youtu.be/zFmpy5ZcOtU?si=apLqTz9FgL0_zpkY" target="_blank">
   <img src="https://img.youtube.com/vi/zFmpy5ZcOtU/hqdefault.jpg" alt="Смотреть видео" width="400" style="border-radius: 10px;">
 </a>
