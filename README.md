@@ -25,4 +25,4 @@ open dm, open to new meeting
 </div>
 
 <div align="center">
-<img src="https://img1.picmix.com/output/stamp/normal/3/7/9/6/1556973_ece88.gif" width="300">
+<img src="https://img1.picmix.com/output/stamp/normal/3/7/9/6/1556973_ece88.gif" width="250">
