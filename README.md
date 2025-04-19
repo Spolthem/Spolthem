@@ -1,7 +1,7 @@
-
-
 <div align="center">
-open dm, open to new meeting
+open dm, open to new meeting :р
+   
+   <img src="https://64.media.tumblr.com/eebe3abe42afe40097851ff72127a372/7888f4782bc0c07c-f6/s100x200/747fe2d07789700e4a062841ef130a97c3d31516.pnj" width="40">
    
 <div align="center">
    <img src="https://www.gifs.cc/lines/1-animated-flow-line-2.gif" width="400">
@@ -35,7 +35,7 @@ open dm, open to new meeting
 
 <div align="center">
 
-## BEFORE INTERACT: 
+### BEFORE INTERACT: 
 
 Im very possessive person, jealous and a bit rude in relationships but it doesn't hide the fact that I behave more or less well and loyally. I'm just a peculiar person, keep in mind. <img src="https://img1.picmix.com/output/stamp/normal/6/2/1/4/934126_7eb09.gif" width="20">
 
