@@ -45,3 +45,6 @@ DNI: base(not at all (I'm not quite one myself, so I don't mind if you're zoophi
 <div align="center">
 <img src="https://img1.picmix.com/output/pic/normal/1/8/7/7/12407781_2d309.gif" width="200">
 
+<div align="center">
+
+<img src="https://64.media.tumblr.com/82c12ec8ecf9bfec11b08dbb02e132be/ee7bed4d66324502-f3/s1280x1920/cd7a8000069a96dfbc390902400aadccddaf2355.pnj" width="200">
