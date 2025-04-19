@@ -33,6 +33,7 @@ open dm, open to new meeting
 
 <div align="center">
 DNI/Thin ice:
+   
 DNI: base(not at all (I'm not quite one myself, so I don't mind if you're zoophile or etc., but not homophobia); Thin ice: fans of popular mlm/wlw ships[gi/hsr]: (Xingyun, YaeEi, JeanLisa, ZhongChi, KaeLuc, Beigguang, Kavetham, Thomato, Cynonari, Wriolette, Clorivia; KafHime, PhaiDei, Ratiorine, Argenthill, Sampard, RenHeng etc.), people with bf/gf, a large number of friends.
 <div align="center">
 <img src="https://img1.picmix.com/output/pic/normal/1/8/7/7/12407781_2d309.gif" width="200">
