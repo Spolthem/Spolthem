@@ -6,8 +6,5 @@ open dm, open to new meeting
    
 <p align="center">
   <img src="https://images.genius.com/c13380b32fb9d759ea73abf5555a4978.1000x1000x1.png" width="80" style="vertical-align: middle; margin-right: 10px;">
-  <span style="display: inline-block; vertical-align: middle; text-align: left;">
-    <strong>Три Дня Дождя</strong><br>
-    Интро / Дом
-  </span>
+  <strong>Три Дня Дождя — Интро / Дом</strong>
 </p>
