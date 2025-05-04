@@ -37,14 +37,14 @@ open dm, open to new meeting :р
 <div align="center">
 
 ### BEFORE INTERACT: 
-
-Im very possessive person, jealous and a bit rude in relationships but it doesn't hide the fact that I behave more or less well and loyally. I'm just a peculiar person, keep in mind. <img src="https://img1.picmix.com/output/stamp/normal/6/2/1/4/934126_7eb09.gif" width="20">
+I can be warm but caustic, caring but closed. I often seek closeness, but I don't always understand how to approach it correctly. Moderately quiet, moderately strange. There is stubbornness, there is softness - it all depends on how a person feels next to me. I can be silent, I can talk non-stop, but I always try to be honest and attentive. Light flirting is not alien, but everything comes from the mood and connection. There are many feelings inside, not always clear even to me. I do not like loneliness, but sometimes it is a necessary refuge. Rather, by the silence between each other in the right places. I value a real connection - not the one that is based on words, but the one where even silence feels alive. Where you don't have to pretend, guess who to be, or be afraid to say something wrong. It's important to me to feel that the person is there not by chance, but because he wants to be there. Not temporarily, not "for now it's convenient", but honestly. :р
+ <img src="https://img1.picmix.com/output/stamp/normal/6/2/1/4/934126_7eb09.gif" width="20">
 
 <div align="center">
    
 ## DNI/Thin ice:
    
-DNI: base(not at all (I'm not quite one myself, so I don't mind if you're zoophile or etc., but not homophobia); Thin ice: fans of popular mlm/wlw ships[gi/hsr]: (Xingyun, YaeEi, JeanLisa, ZhongChi, KaeLuc, Beigguang, Kavetham, Thomato, Cynonari, Wriolette, Clorivia; KafHime, PhaiDei, Ratiorine, Argenthill, Sampard, RenHeng etc.), people with bf/gf, a large number of friends. <img src="https://img1.picmix.com/output/stamp/normal/8/4/4/7/2457448_e5931.gif" width="20">
+DNI: base(not at all (I'm not quite one myself)); Thin ice: fans of popular mlm/wlw ships[gi/hsr]: (Xingyun, YaeEi, JeanLisa, ZhongChi, KaeLuc, Beigguang, Kavetham, Thomato, Cynonari, Wriolette, Clorivia; KafHime, PhaiDei, Ratiorine, Argenthill, Sampard, RenHeng etc.) <img src="https://img1.picmix.com/output/stamp/normal/8/4/4/7/2457448_e5931.gif" width="20">
 <div align="center">
 <img src="https://img1.picmix.com/output/pic/normal/1/8/7/7/12407781_2d309.gif" width="200">
 
