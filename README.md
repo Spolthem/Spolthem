@@ -2,7 +2,7 @@
 open dm, open to new meeting :р
 ㅤ
 <div align="left">
-<img src="https://64.media.tumblr.com/eebe3abe42afe40097851ff72127a372/7888f4782bc0c07c-f6/s100x200/747fe2d07789700e4a062841ef130a97c3d31516.pnj" width="30"> <img src="https://64.media.tumblr.com/da746613a138c8dc6c67755baedc3971/f3a71fe4ca5a72d7-b4/s100x200/9a41243441f002aa8c076d74299c7846d60404b9.pnj" width="110"> <img src="https://64.media.tumblr.com/28486d3a5580b5e4341018c48d38dfa1/ade502d5609b7747-9c/s250x400/f8b7ce18c9f02c2cdc58367b8288a71bd7e1e924.gifv" width="100">, yea, you can address me as Zem, all the main things are written in the bio
+<img src="https://64.media.tumblr.com/eebe3abe42afe40097851ff72127a372/7888f4782bc0c07c-f6/s100x200/747fe2d07789700e4a062841ef130a97c3d31516.pnj" width="30"> 
    
 <div align="center">
    <img src="https://www.gifs.cc/lines/1-animated-flow-line-2.gif" width="400">
